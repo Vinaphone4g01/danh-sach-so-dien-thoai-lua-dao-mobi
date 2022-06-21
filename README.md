@@ -1,2 +1,4 @@
 # danh-sach-so-dien-thoai-lua-dao-mobi
 Danh sách số điện thoại lừa đảo mà thuê bao MobiFone nên chú ý
+<p style="text-align: justify;">Chiêu thức lừa đảo qua không gian mạng là đề tài chưa bao giờ ngừng hot. Do đó khách hàng cần đề phòng, nâng cáo cảnh giác để hạn chế tình trạng mất tiền oan. Dưới đây <a href="http://3gmobifones.com" target="_blank" rel="noopener">3gmobifones.com</a> sẽ cập nhật cho bạn <a href="https://3gmobifones.com/danh-sach-so-dien-thoai-lua-dao-mobifone"><strong>các số điện thoại lừa đảo MobiFone</strong></a> để giúp người dùng nhận biết. Và tuyệt đối không nên làm theo sự hướng dẫn của người lạ qua những đầu số này.</p>
+<p style="text-align: justify;">Việc lừa đảo chiếm đoạt tài sản qua những cuộc gọi không còn là điều xa lạ. Nếu phát hiện hình thức lừa đảo thì hãy nhanh chóng báo ngay cơ quan có thẩm quyền để được bảo vệ tốt nhất.</p>
